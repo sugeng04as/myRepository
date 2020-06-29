@@ -1,3 +1,1 @@
 # myRepository
-
-    Jangan Menyerahhh . . . 
